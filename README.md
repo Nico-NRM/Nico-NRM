@@ -1,5 +1,12 @@
-   **EAI TUDO BEM?**
+   **EAI TUDO BEM?**                                  ![emoji-waving-happy-emoji](https://github.com/user-attachments/assets/ae64456b-3b8c-4809-9de0-89d0204501db)
+ 
+-Me chamo Nicolas e tenho 14 quase 15 anos.     
 
-![joinha-gostei](https://github.com/user-attachments/assets/e607ab45-e230-4c5b-8ed9-11804f4ebd95)
+-Adoro jogar vídeo game e andar de bicicleta.
 
-<img width="851" height="315" alt="红黄粉色迪士尼疯狂动物城2夏奇羊Facebook封面" src="https://github.com/user-attachments/assets/1985e987-4b72-406c-bda6-de9c74a4bb3b" />
+-E logo logo irei começar a trabalhar.
+
+
+
+
+![soeshi-soeshi-dance](https://github.com/user-attachments/assets/9c241626-66f5-49cb-8e29-b5dbbc4700c6)
