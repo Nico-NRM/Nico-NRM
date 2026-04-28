@@ -1,6 +1,6 @@
    **EAI TUDO BEM?**                                  ![emoji-waving-happy-emoji](https://github.com/user-attachments/assets/ae64456b-3b8c-4809-9de0-89d0204501db)
  
--Me chamo Nicolas e tenho 14 quase 15 anos.     
+-Me chamo Nicolas e tenho 15 anos.     
 
 -Adoro jogar vídeo game e andar de bicicleta.
 
